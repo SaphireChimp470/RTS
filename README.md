@@ -1,2 +1,2 @@
 # RTS
-rts fuck off
+yor mum fat lol
